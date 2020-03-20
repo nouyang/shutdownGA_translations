@@ -2,7 +2,7 @@
 
 **Please email me at nrw@mit.edu and I will post translations.**
 
-* Raw (English): (./raw.txt)
+* [Raw (English) (copy and edit this)](./raw.txt)
 * [Chinese Simplified (WIP)](./zh.md)
-... yours?
+* ... yours?
 
