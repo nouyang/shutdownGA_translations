@@ -1,6 +1,5 @@
-# shutdownGA_translations 
+# https://www.change.org/shutdownGA.  
 
-Translations of https://www.change.org/shutdownGA. 
 **Please email me at nrw@mit.edu and I will post translations.**
 
 * English: https://www.change.org/shutdownGA
