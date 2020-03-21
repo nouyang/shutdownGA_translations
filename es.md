@@ -1,8 +1,8 @@
-# [Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA] (change.org/shutdownGA)
+# [Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA](change.org/shutdownGA)
 
 Todos nosotros le pedimos al Gobernador de Georgia, Brian kemp, que mande inmediatamente a todos a refugiarse en sus casas.
 
-Específicamente, de igual manera a la que el Gobernador de California hizo con 40 millones de personas en California. (https://covid19.ca.gov/stay-home-except-for-essential-needs/)
+Específicamente, de igual manera a la que el Gobernador de California hizo con [40 millones de personas en California](https://covid19.ca.gov/stay-home-except-for-essential-needs/)
 
 - Toda la gente tiene que quedarse en casa con excepción de cosas que sean extremadamente necesarias.
 - Personas vulnerables *deben* refugiarse en casa!
@@ -15,7 +15,7 @@ Bares, discotecas, restaurantes con mesas, gimnasios, todos tienen que cerrarse.
 "Al principio de la pandemia, Italia tenia la misma cantidad de infecciones que en China y otros paises. La diferencia es que en China todos los negocios cerraron rapidamente y la gente no salio de sus casas 8 dias antes que en Italia.
 **SOLO 8 DÍAS más tarde en Italia resultó en tantos enfermos que la cantidad de muertes en Italia está a punto de sobrepasar los de en China.
 
-Podemos ver ene este momento la trayectoria en Italia (https://en.wikipedia.org/wiki/2020_coronavirus_pandemic_in_Italy), una nacion de 60 millones de personas.
+Podemos ver ene este momento [la trayectoria en Italia](https://en.wikipedia.org/wiki/2020_coronavirus_pandemic_in_Italy), una nacion de 60 millones de personas.
 
 - 25 Feb:  322 casos confirmados y 10 muertos
 - **1 Marzo**: 1694 casos y 34 muertos
@@ -29,15 +29,15 @@ Georgia tiene 10 millones de personas, no 60 millones.
 
 Ayer el 19 de Marzo, Italia superó en cantidad de muertos a China. No podemos esperar una semana más para cerrar todo. Debemos hacerlo hoy!!
 
-China, decidio parar todo en 16 ciudades con mas de 56 millones de personas, una vez que confirmo 1300 casos （https://www.aljazeera.com/news/2020/01/timeline-china-coronavirus-spread-200126061554884.html）
+China, [decidio](https://www.aljazeera.com/news/2020/01/timeline-china-coronavirus-spread-200126061554884.html) parar todo en 16 ciudades con mas de 56 millones de personas, una vez que confirmo 1300 casos 
 En el trayecto de la epidemia, este es el estado en el que esta Georgia!!!
 
-Una vez todo fue cerrado, construyeron un hospital con más de 1600 camas en 10 dias y ahun asi, no hubo suficiente espacio para todos los enfermos. (https://en.wikipedia.org/wiki/Leishenshan_Hospital)
+Una vez todo fue cerrado, construyeron un hospital con más de [1600 camas](https://en.wikipedia.org/wiki/Leishenshan_Hospital) en 10 dias y ahun asi, no hubo suficiente espacio para todos los enfermos.
 
 La trayectoria de la pandemia, es clara, está en camino, y millones de personas van a sufrir, y tambien la economia.  **Pero tenemos que actuar ahora, no en la próxima semana, de esta manera salvamos muchas vidas**
 
 **[Escuchen a los doctores](https://midnightmass.substack.com/p/50-medical-docs-warn-of-massachusetts),
-[No se preocupen] (https://www.ajc.com/news/state--regional-govt--politics/kemp-rejects-statewide-shutdown-brace-for-coronavirus-scrambles-for-health-supplies/0pYYAFVOkyV4VIhLkEJajK/)
+[No se preocupen](https://www.ajc.com/news/state--regional-govt--politics/kemp-rejects-statewide-shutdown-brace-for-coronavirus-scrambles-for-health-supplies/0pYYAFVOkyV4VIhLkEJajK/)
 sobre que puede hacer el gobierno y empiecen a preocuparse por los residentes de Georgia.
 **Insitar a la gente a no salir no es buen liderazgo** Ningun local va querer cerrar, y la gente vulnerable van a seguir trabajando. Todos somos seres sociales y no vamos a querer parar de ver a nuestros amigos.
 **Parar todo y refugiarse en casa tiene que ser un mandado**
