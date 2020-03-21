@@ -1,5 +1,5 @@
 这是翻译 [change.org/shutdownGA](www.change.org/shutdownGA). 请签名并分享。
-我是ABC中文不太好，用google translate翻译，清 email nrw@mit.edu 帮忙翻译，多谢！
+我是ABC中文不太好，用google translate翻译，清 email nrw at mit ~dot] edu 帮忙翻译，多谢！
 
 # 告诉州长坎普：今天关闭佐治亚州，挽救生命#shutdownGA
 
