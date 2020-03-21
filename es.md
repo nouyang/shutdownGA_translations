@@ -1,3 +1,5 @@
+Esta es una traducción de change.org/shutdownGA. Envíe un correo electrónico a nrw at mit ~dot)edu para ayudar a traducir a otros idiomas, ¡gracias!
+
 # [Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA](change.org/shutdownGA)
 
 Todos nosotros le pedimos al Gobernador de Georgia, Brian kemp, que mande inmediatamente a todos a refugiarse en sus casas.
