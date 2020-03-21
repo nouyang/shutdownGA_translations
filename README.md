@@ -3,7 +3,7 @@
 **Please email me at nrw at mit ~dot] edu and I will post translations.**
 
 - **[Raw (English) (copy and edit this)](./raw.txt)**
--  [English preview](./raw.md)**
+-  [English preview](./raw.md)
 
 
 Translations:
