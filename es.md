@@ -38,10 +38,9 @@ Una vez todo fue cerrado, construyeron un hospital con más de [1600 camas](http
 
 La trayectoria de la pandemia, es clara, está en camino, y millones de personas van a sufrir, y tambien la economia.  **Pero tenemos que actuar ahora, no en la próxima semana, de esta manera salvamos muchas vidas**
 
-**[Escuchen a los doctores](https://midnightmass.substack.com/p/50-medical-docs-warn-of-massachusetts),
-[No se preocupen](https://www.ajc.com/news/state--regional-govt--politics/kemp-rejects-statewide-shutdown-brace-for-coronavirus-scrambles-for-health-supplies/0pYYAFVOkyV4VIhLkEJajK/)
-sobre que puede hacer el gobierno y empiecen a preocuparse por los residentes de Georgia.
-**Insitar a la gente a no salir no es buen liderazgo** Ningun local va querer cerrar, y la gente vulnerable van a seguir trabajando. Todos somos seres sociales y no vamos a querer parar de ver a nuestros amigos.
+**[Escuchen a los doctores](https://midnightmass.substack.com/p/50-medical-docs-warn-of-massachusetts), [No se preocupen](https://www.ajc.com/news/state--regional-govt--politics/kemp-rejects-statewide-shutdown-brace-for-coronavirus-scrambles-for-health-supplies/0pYYAFVOkyV4VIhLkEJajK/)
+sobre que puede hacer el gobierno y empiecen a preocuparse por los residentes de Georgia.**
+***Insitar* a la gente a no salir no es buen liderazgo**. Ningun local va *querer* cerrar, y la gente vulnerable van a seguir trabajando. Todos somos seres sociales y no vamos a *querer* parar de ver a nuestros amigos.
 **Parar todo y refugiarse en casa tiene que ser un mandado**
 
 Las consecuencias a la economía van a ser tremendas: Muchos negocios entran en bancarrota, mucha gente perderá sus trabajos. Pero no actuar HOY solo lo hará peor.
