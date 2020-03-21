@@ -6,6 +6,6 @@
 
 Translations:
 
-- [Chinese Simplified (WIP)](./zh.md)
-- [Spanish](./es.md)
+- [Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA](./es.md)
+- [告诉州长坎普：今天关闭佐治亚州，挽救生命#shutdownGA (WIP)](./zh.md)
 
