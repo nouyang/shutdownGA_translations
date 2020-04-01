@@ -1,7 +1,7 @@
 Traducido automáticamente usando el traductor de google
 
 
-# [Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA] (change.org/shutdownGA)
+# Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA change.org/shutdownGA
  
 Específicamente, tal como treinta y dos estados, D.C. y Puero Rico han ordenado:
 
