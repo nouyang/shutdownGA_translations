@@ -1,8 +1,8 @@
 Traducido automáticamente usando el traductor de google
 
 
-# Hacemos un llamado al gobernador de Georgia, Brian Kemp, para que ordene un refugio inmediato en el lugar.
-
+# [Tenemos que decirle al Gobernador Kemp que cierre Georgia AHORA, salvara vidas #shutdownGA] (change.org/shutdownGA)
+ 
 Específicamente, tal como treinta y dos estados, D.C. y Puero Rico han ordenado:
 
     Se debe ordenar a las personas que se queden en casa, excepto por necesidades esenciales.
